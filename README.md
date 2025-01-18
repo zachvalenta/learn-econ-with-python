@@ -1,3 +1,4 @@
+* https://www.noahpinion.blog/p/the-pettis-paradigm-and-the-second
 * https://www.noahpinion.blog/p/should-economists-read-marx
 * https://www.youtube.com/playlist?list=PLZHQObOWTQDOcxqQ36Vow3TdTRjkdSvT-
 * https://github.com/weijie-chen/Econometrics-With-Python
