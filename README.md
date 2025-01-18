@@ -1,3 +1,5 @@
+* https://www.noahpinion.blog/p/should-economists-read-marx
+* https://www.youtube.com/playlist?list=PLZHQObOWTQDOcxqQ36Vow3TdTRjkdSvT-
 * https://github.com/weijie-chen/Econometrics-With-Python
 * https://quantecon.org/lectures/
 * country profiles https://www.noahpinion.blog/p/trudeau-was-a-poor-steward-of-canadas
