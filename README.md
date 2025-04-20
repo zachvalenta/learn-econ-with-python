@@ -10,6 +10,7 @@
 
 # za
 
+* https://docs.google.com/document/d/1VibVXKAZfYaH09JDzgG5UGuFNvrMdduKKSzec-HCdM4/mobilebasic
 * https://www.noahpinion.blog/p/the-pettis-paradigm-and-the-second
 * https://www.noahpinion.blog/p/should-economists-read-marx
 * https://www.youtube.com/playlist?list=PLZHQObOWTQDOcxqQ36Vow3TdTRjkdSvT-
