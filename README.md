@@ -1,5 +1,7 @@
 # bonds
 
+https://scottsumner.substack.com/p/peter-navarro-vs-kevin-erdmann
+
 🔗 https://www.noahpinion.blog/p/trumps-economy-is-already-in-trouble
 
 > I’ve been warning for a couple years now that the national debt was about to become a problem again. For two decades, Americans didn’t worry much about the debt, because interest rates were low. If interest payments are low, you basically don’t even notice debt piling up, because it doesn’t do anything — it just sort of sits there as a number in Microsoft Excel.
