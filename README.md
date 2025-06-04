@@ -1,5 +1,7 @@
 # bonds
 
+https://www.slowboring.com/p/an-abundance-agenda-for-antitrust
+https://marginalrevolution.com/marginalrevolution/2025/05/econ-101-is-underrated.html
 https://scottsumner.substack.com/p/peter-navarro-vs-kevin-erdmann
 
 🔗 https://www.noahpinion.blog/p/trumps-economy-is-already-in-trouble
